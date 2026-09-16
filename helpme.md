@@ -15,3 +15,4 @@ help me idk what im doing
 <br/> **DNI:** boundary breakers, TERFs, anything but radinculus, radqueer, zoo/pdf/darkship, MAGA, sverigedemokrat (swedish politics),and just like the usual shit
 <br/> **SOCIALS:** main socials will be linked! if u want to reach out to me: dm me on **discord**. i have access to discord all 24 hours of my day
 **I AM AN AO3 WRITER BUT IM NOT VERY PROUD OF MY WORK SO I DELETED IT. I HAVE A BLELLOW FANFICTION COMMING UP ONCE I FINISH THE FIRST 3 CHAPTERS (final will be 7 or 8 chapters)
+**YUMESHIPS:** i am a yumeshipper! soft sharing on all but doubles are free to interact as long at theyre cautious! i yume with roulxs kaard from deltarune, four from bfdi and yuri from ddlc! 
